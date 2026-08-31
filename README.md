@@ -10,4 +10,5 @@
 <img width="54.5" height="57.5" alt="Filename2" src="https://github.com/user-attachments/assets/624c98d3-7ebe-4853-a9a6-a7818bead714" />
 <br><img width="361" height="361" alt="Screenshot 2026-08-23 211226" src="https://github.com/user-attachments/assets/9996d7ed-28c9-45d9-bb0e-14ec0f93ccb8" /></br>
 <br>red circles are where i am sometimes, green..or the yellow circle is where i typically am,</br> 
+<img width="165" height="49" alt="Screenshot 2026-08-31 164623" src="https://github.com/user-attachments/assets/b2871d23-7b6b-4745-9ec1-7d76284c2bfd" />
 
