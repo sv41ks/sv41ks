@@ -1,5 +1,5 @@
 
-# $\color{#8B0000}\textsf{❝ Oh jeepers, you found me! ❞}$
+# $\color{#8B0000}\textsf{❝ OH JEEPERS, YOU FOUND ME! ❞}$
 <br><img width="101.25" height="67.5" alt="NewNullAnim" src="https://github.com/user-attachments/assets/df3a5dcb-e39b-4600-bebe-0b5a9ab76e8e" /></br>
 
 
