@@ -2,7 +2,7 @@
 # $\color{#8B0000}\textsf{❝ OH JEEPERS, YOU FOUND ME! ❞}$
 <br><img width="101.25" height="67.5" alt="NewNullAnim" src="https://github.com/user-attachments/assets/df3a5dcb-e39b-4600-bebe-0b5a9ab76e8e" /></br>
 
-
+<img width="184" height="26" alt="Screenshot 2026-09-07 200934" src="https://github.com/user-attachments/assets/caef39dd-cd69-4618-bbfe-0b0cab4c3c65" />
 <br> You're from Pony Town. I'm likely AFK. I do not roleplay, at least much. I am especially not chatty.</br>
 <br>I like making ponies and looking at peoples websites. I just let the game sit in the background.</br>
 <br>Feel free to send me a friend request, I'll accept any on there. 26/150 </br> <img width="240" height="135" alt="NullRenderV2" src="https://github.com/user-attachments/assets/650f3388-9b94-48a4-b300-bea79daf210d" /> 
