@@ -8,7 +8,7 @@
 <br>Feel free to send me a friend request, I'll accept any on there. 27/150 </br> <img width="240" height="135" alt="NullRenderV2" src="https://github.com/user-attachments/assets/650f3388-9b94-48a4-b300-bea79daf210d" /> 
 <br>I will ALWAYS have my github linked.</br>
 <br>I am not staring at my screen all day. Though I usually come back every few minutes to click my screen to stay on since I don't use an autoclicker.</br>
-<br>If I'm not on, I'm either sleeping or not home - mainly on the weekends.</br>
+<br>If I'm not on, I'm either sleeping or not home - mainly on the weekends. or I just don't feel like it</br>
 <img width="54.5" height="57.5" alt="Filename2" src="https://github.com/user-attachments/assets/624c98d3-7ebe-4853-a9a6-a7818bead714" />
 <img width="20.98" height="57.5" alt="Tim_brainpop" src="https://github.com/user-attachments/assets/a77d4aaa-566d-4286-8fe2-ba0c3d4fb4a4" />
 <br><img width="350" height="250" alt="20260914_163632306_iOS" src="https://github.com/user-attachments/assets/9448d05c-323f-4af0-9a6f-96b4b2a385a1" /></br>
